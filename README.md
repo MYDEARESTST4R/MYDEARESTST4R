@@ -6,4 +6,4 @@
 
 ![](https://komarev.com/ghpvc/?username=MYDEARESTST4R&style=for-the-badge&label=ASTERISMS&color=81C3E3)
 
-<img width="1024" height="1577" alt="Untitled93_20261125121909" src="https://github.com/user-attachments/assets/672a33d4-951d-43a3-9565-dd823d3c219e" />
+<img width="355" height="720" alt="Untitled94_20261126082338" src="https://github.com/user-attachments/assets/3dc3167f-6403-477d-8615-a26bd3128a34" />
